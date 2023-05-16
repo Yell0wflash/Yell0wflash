@@ -2,7 +2,7 @@
 
 - 👨‍💻 All of my projects are available at [https://davidbush1.web.app/](https://davidbush1.web.app/)
 
-- 📫 How to reach me **davidbus1450@gmail.com**
+- 📫 How to reach me **yellowflash0918@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
